@@ -1,2 +1,0 @@
-# latihan.github.io
-sanuokvn
